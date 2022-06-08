@@ -1,0 +1,3 @@
+- 👋 Kia Ora! My name is Bryden 
+- 🌱 I’m currently studying @Enspiral Dev Academy...
+- 📫 You can reach me @...bryden.gunn@gmail.com
